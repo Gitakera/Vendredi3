@@ -1,5 +1,5 @@
 # Vendredi3
 
-Mbola mila amboarina. 
+Mbug
 
-Date de sortie version final : dans 30h from now
+Date de sortie version final : (nakaiza ny contributeur o :p )
